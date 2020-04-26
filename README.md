@@ -21,10 +21,10 @@ The Storage of our team's projects.
 9.) BMI-Check - Chatbot integrated in Google Assistant (https://assistant.google.com/services/a/uid/000000f6e3eb28f5?hl=en).
 
 10.) Vaathi coming music - Live Coding (https://drive.google.com/open?id=1XdGGVdRAnBORGLNi319rWAvlFGxU1Wdu).
-For Video - 
+For Video - (https://www.instagram.com/tv/B_UrP2gnA2v/?igshid=95ftb6tv542m).
 
 11.) Astronomia - Live Coding (https://drive.google.com/open?id=1cpp2UyjUUAwsBWOYGNJuK87x14Ptrwhh).
-For Video - 
+For Video - (https://www.instagram.com/p/B_XNU7Jn_g9/?igshid=z5tktc0sv4sp).
 
 12.) Darbar bgm - Live Coding (https://drive.google.com/open?id=1nneAy7AIPBo3ZTzhKAcudnJuhjqx9Kjn).
-For Video - 
+For Video - (https://www.instagram.com/tv/B_aCHdLn9fd/?igshid=96zxz2g85ar3).
